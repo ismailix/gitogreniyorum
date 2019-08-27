@@ -1,0 +1,2 @@
+# gitogreniyorum
+ilk ögrendiklerim
